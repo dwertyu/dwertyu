@@ -15,7 +15,7 @@ I'm currently diving into the fascinating world of **Artificial Intelligence** a
 ## 💬 Let's Connect!
 
 I'm always open to meeting new people and learning from others. Feel free to reach out to me:
-- **Email**: [yaburoka@outlook.com](mailto:yaburoka@outlook.com)
+- **Email**: 
 
 ---
 
